@@ -100,7 +100,7 @@ V8サウンドひびかせよ～　あらバスタ
 ＡＰＡホテルめざす
 コーンポタージュを飲む
 素晴らしい朝だ！
-
+https://1drv.ms/u/s!AkUWU_MXGDs5gZZxxfM-WToqXWHAUA?e=Lbd4sA
 
 ## 冬の朝（高校時代）
 高校行くため　制服着がえ
